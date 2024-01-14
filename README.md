@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ney-Mor(Nikita 17 y.o)
 - 👀 I’m interested in: sport and programming
 - 🌱 I’m currently learning: python ( and a little JS, HTML, CSS)
-- 💞️ I’m looking to collaborate on: nothing
+- 💞️ I’m looking to collaborate on: with everyone
 - 📫 How to reach me: telegram - yatotesheyblydok
 - 😄 Pronouns: he
 - ⚡ Fun fact: Im play in stardew walley
