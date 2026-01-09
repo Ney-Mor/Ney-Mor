@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ney-Mor(Nikita 17 y.o)
+- 👋 Hi, I’m @Ney-Mor(Nikita 18 y.o)
 - 👀 I’m interested in: sport and programming
 - 🌱 I’m currently learning: python ( and a little JS, HTML, CSS)
 - 💞️ I’m looking to collaborate on: with everyone
